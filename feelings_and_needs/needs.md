@@ -1,5 +1,6 @@
+# List of Needs
 
-CONNECTION
+## CONNECTION
 acceptance
 affection
 appreciation
@@ -31,7 +32,7 @@ trust
 warmth
  
 
-HONESTY
+## HONESTY
 authenticity
 integrity
 presence
@@ -39,7 +40,7 @@ PLAY
 joy
 humor
 
-PEACE
+## PEACE
 beauty
 communion
 ease
@@ -48,7 +49,7 @@ harmony
 inspiration
 order
 
-PHYSICAL WELL-BEING
+## PHYSICAL WELL-BEING
 air
 food
 movement/exercise
@@ -59,7 +60,7 @@ shelter
 touch
 water
 
-MEANING
+## MEANING
 awareness
 celebration of life
 challenge
@@ -81,7 +82,8 @@ self-expression
 stimulation
 to matter
 understanding
-AUTONOMY
+
+## AUTONOMY
 choice
 freedom
 independence
