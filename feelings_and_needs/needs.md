@@ -1,9 +1,9 @@
 # List of Needs
 
 ## CONNECTION
-acceptance
-affection
-appreciation
+- acceptance
+- affection
+- appreciation
 belonging
 cooperation
 communication
@@ -31,12 +31,12 @@ be understood
 trust
 warmth
  
-
 ## HONESTY
 authenticity
 integrity
 presence
-PLAY
+
+## PLAY
 joy
 humor
 
