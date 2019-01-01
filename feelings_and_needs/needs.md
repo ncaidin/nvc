@@ -1,11 +1,11 @@
 # List of Needs
 
 ## CONNECTION
-- acceptance
-- affection
-- appreciation
-belonging
-cooperation
+acceptance . 
+affection . 
+appreciation . 
+belonging . 
+cooperation . 
 communication
 closeness
 community
