@@ -1,0 +1,1 @@
+The purpose of this repository is to hold materials to help with my own learning of NonViolent Communication, to share materials with others, and, my most immediate need, to gather materials as I prepare for sharing NVC as a workshop leader.
