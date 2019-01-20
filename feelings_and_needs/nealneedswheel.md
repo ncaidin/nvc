@@ -3,6 +3,11 @@
 * Self Care
 * Physical Safety
 ## Autonomy
+* Choice
+* Freedom
+* Independence
+* Space
+* Spontaneity
 ## Meaning
 ## Play
 ## Empathy
