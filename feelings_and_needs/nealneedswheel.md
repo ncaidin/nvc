@@ -7,6 +7,11 @@
 * Understanding
 * Presence
 ## Interdependence
+* Community
+* Partnership
+* Collaboration
+* Competence
+* Efficiency
 ## Self Connection
 * Awareness
 * Clarity
