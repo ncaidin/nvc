@@ -53,6 +53,7 @@
 * Connection with our body
 * Self Compassion
 * Self Love
+* Emotional Safety
 ## Regeneration
 * Mourning
 * Celebration
