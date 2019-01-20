@@ -45,6 +45,7 @@
 * Mutuality
 * Love
 * Support
+* Harmony
 ## Self Connection
 * Awareness
 * Clarity
@@ -68,6 +69,7 @@
 * Hope
 * Learning
 * Nurturance
+* Peace
 ## Uncategorized
 
 
