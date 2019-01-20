@@ -32,6 +32,10 @@
 * Collaboration
 * Competence
 * Efficiency
+* Affection
+* Connection
+* Belonging
+* Communication
 ## Self Connection
 * Awareness
 * Clarity
@@ -54,6 +58,6 @@
 * Hope
 * Learning
 * Nurturance
-
-
+## Uncategorized
+* Acceptance
 
