@@ -15,10 +15,8 @@
 * Presence
 * Healing
 * Connection with our body
-
-Self Compassion
-
-Self Love
+* Self Compassion
+* Self Love
 ## Regeneration
 * Mourning
 * Celebration
