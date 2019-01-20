@@ -102,6 +102,8 @@
 * Touch
 * Humor
 * Order
+* Consciousness
+
 
 
 
