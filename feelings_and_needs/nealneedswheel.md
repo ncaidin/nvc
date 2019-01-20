@@ -57,6 +57,7 @@
 * Self Compassion
 * Self Love
 * Emotional Safety
+* "Me time" - Space
 ## Restorative (or Regenerative)
 * Mourning
 * Celebration
