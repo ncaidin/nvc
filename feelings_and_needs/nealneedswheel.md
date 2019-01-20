@@ -16,6 +16,11 @@
 * Space
 * Spontaneity
 ## Play
+* Joy
+* Humor
+* Connection
+* Communication
+* Space
 ## Empathy
 * Compassion
 * Understanding
