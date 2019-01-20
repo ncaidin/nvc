@@ -20,6 +20,7 @@
 * Authenticity
 * Self Expression
 * Creation
+* Integrity
 ## Play
 * Joy
 * Lightness
