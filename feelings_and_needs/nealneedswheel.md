@@ -54,6 +54,7 @@
 * Reliability
 * Understanding
 * Trust
+* Equality
 ## Self Connection
 * Awareness
 * Clarity
