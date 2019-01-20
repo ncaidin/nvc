@@ -67,6 +67,7 @@
 * Self Love
 * Emotional Safety
 * "Me time" - Space
+* To Matter
 ## Restorative (or Regenerative)
 * Mourning
 * Celebration
@@ -107,6 +108,8 @@
 * Efficacy
 * Effectiveness
 * Participation
+* Stimulation
+
 
 
 
