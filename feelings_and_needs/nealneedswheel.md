@@ -17,7 +17,8 @@
 * Spontaneity
 ## Play
 * Joy
-* Humor
+* Lightness
+* Laughter
 * Connection
 * Communication
 * Space
