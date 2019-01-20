@@ -5,8 +5,19 @@
 ## Empathy
 * Compassion
 * Understanding
-
-Presence
+* Presence
 ## Interdependence
 ## Self Connection
 ## Regeneration
+* Mourning
+* Celebration
+* Aliveness
+* Beauty
+* Communion
+* Inspiration
+* Challenge
+* Creativity
+* Hope
+* Learning
+
+
