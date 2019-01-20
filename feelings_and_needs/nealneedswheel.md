@@ -9,6 +9,12 @@
 * Space
 * Spontaneity
 ## Meaning
+* Purpose
+* Choice
+* Freedom
+* Independence
+* Space
+* Spontaneity
 ## Play
 ## Empathy
 * Compassion
