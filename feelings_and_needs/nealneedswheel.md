@@ -80,6 +80,8 @@
 * Touch
 * Sexual expression
 * Contribution (is this one "overused". What need of mine am I meeting when I contribute? Do I think I am "right" when I contribute, or I will "fix"?) . Maybe contribution is my need to belong? To feel valued? For connection? Contribution often "faces out" rather than "faces in"
+* Appreciation
+
 
 
 
