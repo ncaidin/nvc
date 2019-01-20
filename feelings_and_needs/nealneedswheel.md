@@ -103,6 +103,8 @@
 * Humor
 * Order
 * Consciousness
+* Discovery
+
 
 
 
