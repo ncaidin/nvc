@@ -83,6 +83,8 @@
 * Appreciation
 * Cooperation
 * Closeness
+* Companionship
+
 
 
 
