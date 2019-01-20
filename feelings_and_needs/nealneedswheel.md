@@ -43,6 +43,7 @@
 * Intimacy
 * Mutuality
 * Love
+* Support
 ## Self Connection
 * Awareness
 * Clarity
