@@ -8,6 +8,17 @@
 * Presence
 ## Interdependence
 ## Self Connection
+* Awareness
+* Clarity
+* Growth
+* Focus
+* Presence
+* Healing
+* Connection with our body
+
+Self Compassion
+
+Self Love
 ## Regeneration
 * Mourning
 * Celebration
