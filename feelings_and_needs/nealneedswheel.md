@@ -50,6 +50,7 @@
 * Support
 * Harmony
 * Inclusion
+* Reliability
 ## Self Connection
 * Awareness
 * Clarity
@@ -86,6 +87,8 @@
 * Closeness
 * Companionship
 * Consistency
+* Security
+
 
 
 
