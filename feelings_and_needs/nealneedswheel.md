@@ -51,6 +51,8 @@
 * Harmony
 * Inclusion
 * Reliability
+* Understanding
+* Trust
 ## Self Connection
 * Awareness
 * Clarity
@@ -89,6 +91,15 @@
 * Consistency
 * Security
 * Stability
+* To Know and be known
+* Trust
+* Warmth
+* Movement/exercise
+* Rest/Sleep
+* Sexual expression
+* Touch
+
+
 
 
 
