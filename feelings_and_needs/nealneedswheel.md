@@ -27,6 +27,7 @@
 * Understanding
 * Presence
 * Acceptance
+* Love
 ## Interdependence
 * Community
 * Partnership
@@ -38,6 +39,8 @@
 * Belonging
 * Communication
 * Accountability
+* Intimacy
+* Mutuality
 ## Self Connection
 * Awareness
 * Clarity
