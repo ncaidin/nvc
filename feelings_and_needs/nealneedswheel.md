@@ -1,4 +1,7 @@
 ## Physical Well Being
+* Sustenance (air/water/food/shelter)
+* Self Care
+* Physical Safety
 ## Autonomy
 ## Meaning
 ## Play
