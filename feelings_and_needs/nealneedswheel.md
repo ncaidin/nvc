@@ -52,5 +52,7 @@
 * Creativity
 * Hope
 * Learning
+* Nurturance
+
 
 
