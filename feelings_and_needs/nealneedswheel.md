@@ -57,7 +57,7 @@
 * Self Compassion
 * Self Love
 * Emotional Safety
-## Regeneration
+## Restorative (or Regenerative)
 * Mourning
 * Celebration
 * Aliveness
@@ -70,6 +70,7 @@
 * Learning
 * Nurturance
 * Peace
+* Ease
 ## Uncategorized
 
 
