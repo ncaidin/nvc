@@ -26,6 +26,7 @@
 * Compassion
 * Understanding
 * Presence
+* Acceptance
 ## Interdependence
 * Community
 * Partnership
@@ -36,6 +37,7 @@
 * Connection
 * Belonging
 * Communication
+* Accountability
 ## Self Connection
 * Awareness
 * Clarity
@@ -59,5 +61,5 @@
 * Learning
 * Nurturance
 ## Uncategorized
-* Acceptance
+
 
