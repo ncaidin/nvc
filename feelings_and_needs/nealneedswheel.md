@@ -17,6 +17,9 @@
 * Spontaneity
 * Respect
 * To Be Seen
+* Authenticity
+* Self Expression
+* Creation
 ## Play
 * Joy
 * Lightness
@@ -72,6 +75,10 @@
 * Nurturance
 * Peace
 * Ease
-## Uncategorized
+## Uncategorized or Multi-Categorized
+* Space
+* Touch
+* Sexual expression
+
 
 
