@@ -88,6 +88,8 @@
 * Companionship
 * Consistency
 * Security
+* Stability
+
 
 
 
