@@ -99,6 +99,8 @@
 * Rest/Sleep
 * Sexual expression
 * Touch
+* Humor
+
 
 
 
