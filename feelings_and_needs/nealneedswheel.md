@@ -15,6 +15,7 @@
 * Independence
 * Space
 * Spontaneity
+* Respect
 ## Play
 * Joy
 * Lightness
