@@ -84,6 +84,7 @@
 * Cooperation
 * Closeness
 * Companionship
+* Consistency
 
 
 
