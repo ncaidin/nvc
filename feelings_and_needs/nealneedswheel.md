@@ -49,6 +49,7 @@
 * Love
 * Support
 * Harmony
+* Inclusion
 ## Self Connection
 * Awareness
 * Clarity
