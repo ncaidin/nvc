@@ -16,6 +16,7 @@
 * Space
 * Spontaneity
 * Respect
+* To Be Seen
 ## Play
 * Joy
 * Lightness
