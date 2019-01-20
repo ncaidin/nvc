@@ -41,6 +41,7 @@
 * Accountability
 * Intimacy
 * Mutuality
+* Love
 ## Self Connection
 * Awareness
 * Clarity
