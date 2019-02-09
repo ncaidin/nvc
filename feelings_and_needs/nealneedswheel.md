@@ -82,6 +82,9 @@
 * Nurturance
 * Peace
 * Ease
+* Rest/Sleep
+* Nature
+
 ## Uncategorized or Multi-Categorized
 * Space
 * Touch
