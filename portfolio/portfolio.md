@@ -1,4 +1,6 @@
-# An NVC Pre-Assessment Portfolio*
+# A Journey of Love and Fear
+
+## An NVC Pre-Assessment Portfolio
 
 ### *By and For Neal Caidin, CNVC Certification Candidate*
 
