@@ -15,11 +15,11 @@ This four-week series introduces participants to the foundational **Theater Game
 #### Core Learning Outcomes
 *   **Spontaneity & Energy:** Participants leave feeling refreshed and energized, with a renewed ability to trust their natural impulses.
 *   **Authentic Connection:** Building a sense of "ensemble" where players feel supported by and connected to the whole group.
-*   **Creative Focus:** Gaining confidence in the ability to create something from nothing by following a collaborative process and trusting fellow players.
+*   **Creative Focus:** Gaining confidence in the ability to create something from nothing by following a collaborative process and trusting fellow players (part of a whole).
 
 #### Format & Logistics
 *   **Sessions:** 4 weekly sessions, 2.5 hours each.
-*   **Content:** Focuses on the collaborative “yes and” nature of play and the unique Spolin emphasis on space—transforming the analytical mind into a state of "ready play."
+*   **Content:** This workshop focuses on the collaborative “yes and” nature of play and the Spolin method, which coaches players into the present moment to discover what emerges. By shifting attention from overthinking to play, choice, and awareness, participants develop a natural sense of flow onstage and in everyday life.
 *   **Space Needs:** An open room/stage for movement with enough chairs for all participants (10–16). No tables or complex tech/props required.
 *   **Scheduling Ideas:** Saturday mornings (e.g., 10 AM–12:30 PM) or weekday evenings (e.g., 6 PM–8:30 PM).
 
