@@ -30,7 +30,7 @@ I am open to discussing a cost-sharing arrangement that fits GPAC’s model.
 *   **Proposed Structure:** Open to a revenue split (e.g., 60/40) or a reduced rental fee in exchange for a percentage of registration revenue.
 
 #### Instructor Background
-I have practiced and taught Spolin-based improvisation for over 30 years. My background includes training with **Paul Sills** and ongoing study with **Aretha Sills** (2019–2024). I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
+I have practiced and taught Spolin-based improvisation for over 30 years. My background includes training with **Paul Sills**, **Aretha Sills** (2019–2024) and other experienced Spolin coaches (and participated in a few other styles of Improv as well). I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
 
 ---
 
