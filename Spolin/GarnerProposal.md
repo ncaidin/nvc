@@ -39,7 +39,7 @@ I have practiced and taught Spolin-based improvisation for over 30 years, includ
 **Instructor:** Neal Caidin (Cary, NC) • `neal.caidin@gmail.com` • 919-949-1861
 
 #### Overview
-A deep dive into the **Spolin Theater Games** method, this intensive is designed to help participants reconnect with their natural spontaneity. This isn't about performance or being "quick-witted"; it is about showing up, participating fully, and discovering the joy of collaborative play. **No performance required.**
+A deep dive into the **Spolin Theater Games** method, this intensive is designed to help participants reconnect with their natural spontaneity. This isn't about performance or being "quick-witted"; it is about showing up, participating fully, and discovering the joy of collaborative play. **No prior experience required.**
 
 #### Target Audience
 **Adults (18+)**. Suits both beginners and those with improv experience looking for a process-oriented, non-competitive approach to creativity.
