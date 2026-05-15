@@ -1,5 +1,3 @@
-Here are the updated proposals, refined for an 18+ audience and formatted to include a pricing range to invite Christine's collaboration.
-
 ### Proposal 1: 4-Week Series (2.5 hrs/week)
 
 **To:** Christine Sicinski, Garner Performing Arts Center (GPAC)  
