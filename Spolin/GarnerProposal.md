@@ -21,7 +21,7 @@ This four-week series introduces participants to the foundational Theater Games 
 #### Format & Logistics
 *   **Sessions:** 4 weekly sessions, 2.5 hours each.
 *   **Content:** This workshop focuses on the collaborative “yes and” nature of play and the Spolin method, which coaches players into the present moment to discover what emerges. By shifting attention from overthinking to play, choice, and awareness, participants develop a natural sense of flow onstage and in everyday life.
-*   **Space Needs:** An open room/stage for movement with enough chairs for all participants (10–16). If a few spare carpenter's benches are available, that would be helpful but not required. No tables or complex tech/props required.
+*   **Space Needs:** An open room/stage for movement with enough chairs for all participants (10–16). If a few spare benches (preferably wooden, no backs) are available, that would be helpful but not required. No tables or complex tech/props required.
 *   **Scheduling Ideas:** Saturday mornings (e.g., 10 AM–12:30 PM) or weekday evenings (e.g., 6 PM–8:30 PM).
 
 #### Partnership & Pricing
