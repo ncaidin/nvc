@@ -28,7 +28,7 @@ I am open to discussing a cost-sharing arrangement that fits GPAC’s model.
 *   **Proposed Structure:** Open to revenue sharing or adjusted facility arrangements that support a viable and accessible offering.
 
 #### Instructor Background
-I have practiced and taught Spolin-based improvisation for over 30 years, including training with **Paul Sills** and continued study with **Aretha Sills** (2019–2024 - Paul's daughter and Viola's granddaughter), along with other experienced Spolin teachers. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
+I have practiced and taught Spolin-based improvisation for over 30 years, including training with Paul Sills and continued study with Aretha Sills, Viola Spolin’s granddaughter. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
 
 ---
 
@@ -70,6 +70,6 @@ I understand that standard rental rates may make it challenging to offer this wo
 
 
 ### Instructor Background  
-I have practiced and taught Spolin-based improvisation for over 30 years, including training with Paul Sills and continued study with Aretha Sills (2019–2024), Viola Spolin’s granddaughter, along with other experienced Spolin teachers. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
+I have practiced and taught Spolin-based improvisation for over 30 years, including training with Paul Sills and continued study with Aretha Sills, Viola Spolin’s granddaughter. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
 
 
