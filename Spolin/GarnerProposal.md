@@ -14,9 +14,9 @@ This four-week series introduces participants to the foundational Theater Games 
 **Adults (18+)**. This series is for anyone—from beginners to experienced players—looking for a creative outlet rooted in play rather than performance. It is particularly suited for those wanting to quiet "overthinking" and reconnect with a sense of spontaneity and group connection. **No prior experience is necessary.**
 
 #### Core Learning Outcomes
-*   **Spontaneity & Energy:** Participants leave feeling refreshed and energized, with a renewed ability to trust their natural impulses.
-*   **Authentic Connection:** Building a sense of "ensemble" where players feel supported by and connected to the whole group.
-*   **Creative Focus:** Gaining confidence in the ability to create something from nothing by following a collaborative process and trusting fellow players (part of a whole).
+*  **Spontaneity & Ease:** Participants experience what it feels like to trust their impulses and respond in the moment.
+* **Connection & Ensemble**: A shared sense of play where participants feel supported and part of something larger than themselves.
+* **Creating from Nothing:** Gaining confidence in the ability to step in, engage, and discover what emerges through the process.
 
 #### Format & Logistics
 *   **Sessions:** 4 weekly sessions, 2.5 hours each.
