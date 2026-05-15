@@ -11,7 +11,7 @@ This four-week series introduces participants to the foundational Theater Games 
 
 #### Target Audience
 
-**Adults (18+)**. This series is for anyone who wants to step into a space of play and discovery and wants to develop spontaneity, connection, and confidence—without pressure to perform. **No prior experience is necessary.**
+**Adults (18+)**. This series is for anyone—from beginners to experienced players—looking for a creative outlet rooted in play rather than performance. It is particularly suited for those wanting to quiet "overthinking" and reconnect with a sense of spontaneity and group connection. **No prior experience is necessary.**
 
 #### Core Learning Outcomes
 *   **Spontaneity & Energy:** Participants leave feeling refreshed and energized, with a renewed ability to trust their natural impulses.
