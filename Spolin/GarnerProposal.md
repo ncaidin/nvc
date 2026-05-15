@@ -28,7 +28,7 @@ I am open to discussing a cost-sharing arrangement that fits GPAC’s model.
 *   **Proposed Structure:** Open to revenue sharing or adjusted facility arrangements that support a viable and accessible offering.
 
 #### Instructor Background
-I have practiced and taught Spolin-based improvisation for over 30 years, including training with **Paul Sills** and continued study with Aretha Sills (2019–2024), along with other experienced Spolin teachers. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
+I have practiced and taught Spolin-based improvisation for over 30 years, including training with **Paul Sills** and continued study with **Aretha Sills** (2019–2024 - Paul's daughter and Viola's granddaughter), along with other experienced Spolin teachers. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
 
 ---
 
@@ -57,11 +57,11 @@ A deep dive into the **Spolin Theater Games** method, this intensive is designed
 *   **Scheduling Ideas:** A Saturday or Sunday block (e.g., 10 AM–4 PM or 12 PM–6 PM).
 
 #### Partnership & Pricing
-I would like to collaborate on an arrangement that makes the workshop accessible to the Garner community.
-*   **Suggested Registration Range:** $90–$120 per person.
+I am open to discussing a cost-sharing arrangement that fits GPAC’s model.
+*   **Suggested Registration Range:** $60–$90 per person.
 *   **Proposed Structure:** Open to revenue sharing or a cost-sharing model. My goal is to ensure the program is sustainable forboth the instructor and the venue.
 
 #### Instructor Background
-Practitioner and workshop leader for 30+ years, with specific training from **Paul Sills** and **Aretha Sills**. I have a deep passion for facilitating spaces where people can discover they are "enough" without needing to be clever. Local references available on request.
+I have practiced and taught Spolin-based improvisation for over 30 years, including training with **Paul Sills** and continued study with **Aretha Sills** (2019–2024 - Paul's daughter and Viola's granddaughter), along with other experienced Spolin teachers. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
 
 **Next Step:** I look forward to your thoughts in late May on which format might best complement the GPAC Fall/Winter 2026 season!
