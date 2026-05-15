@@ -25,7 +25,7 @@ This four-week series introduces participants to the foundational Theater Games 
 #### Partnership & Pricing
 I am open to discussing a cost-sharing arrangement that fits GPAC’s model.
 *   **Suggested Registration Range:** $140–$180 per person.
-*   **Proposed Structure:** Open to a different models for cost sharing, and revenue models that ensures accessibility for the Garner community.
+*   **Proposed Structure:** Open to revenue sharing or adjusted facility arrangements that support a viable and accessible offering.
 
 #### Instructor Background
 I have practiced and taught Spolin-based improvisation for over 30 years, including training with **Paul Sills** and continued study with Aretha Sills (2019–2024), along with other experienced Spolin teachers. I have led workshops, practice groups, and co-led a performing troupe for several years. References are available from Aretha Sills and local improviser Anoo Brod.
