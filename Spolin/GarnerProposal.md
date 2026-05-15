@@ -7,7 +7,7 @@ Here are the updated proposals, refined for an 18+ audience and formatted to inc
 **Instructor:** Neal Caidin (Cary, NC) • `neal.caidin@gmail.com` • 919-949-1861
 
 #### Overview
-This four-week series introduces participants to the foundational **Theater Games of Viola Spolin**. This approach is designed to help players bypass self-judgment and "get out of their heads and into the space" through focus, play, and ensemble connection. It is **not** a performance-oriented class; the goal is presence and spontaneity, not comedy or "being clever."
+This four-week series introduces participants to the foundational Theater Games of Viola Spolin. Through the playing of games and theater exercises, participants learn to let go of self-judgment, become more present, and respond naturally in the moment. It is not a performance-oriented class; the focus is on spontaneity, connection, and the experience of play—not on being funny or clever.
 
 #### Target Audience
 **Adults (18+)**. This series is ideal for anyone seeking to develop their creativity, intuition, and collaborative skills in a supportive, low-pressure environment. **No prior experience is necessary.**
