@@ -10,7 +10,8 @@ Here are the updated proposals, refined for an 18+ audience and formatted to inc
 This four-week series introduces participants to the foundational Theater Games of Viola Spolin. Through the playing of games and theater exercises, participants learn to let go of self-judgment, become more present, and respond naturally in the moment. It is not a performance-oriented class; the focus is on spontaneity, connection, and the experience of play, where humor and creativity emerge naturally.
 
 #### Target Audience
-**Adults (18+)**. This series is ideal for anyone seeking to develop their creativity, intuition, and collaborative skills in a supportive, low-pressure environment. **No prior experience is necessary.**
+
+**Adults (18+)**. This series is for anyone who wants to step into a space of play and discovery and wants to develop spontaneity, connection, and confidence—without pressure to perform. **No prior experience is necessary.**
 
 #### Core Learning Outcomes
 *   **Spontaneity & Energy:** Participants leave feeling refreshed and energized, with a renewed ability to trust their natural impulses.
